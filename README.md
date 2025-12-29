@@ -7,7 +7,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on your projects
 - 🤔 I’m looking for help with my expertise
 - 💬 Ask me about my skills orany other things
-- 📫 How to reach me: email id
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 📫 How to reach me: zainabbasi7534@gmail.com
+
 

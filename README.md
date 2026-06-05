@@ -6,7 +6,9 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning AI
 - 👯 I’m looking to collaborate on your projects
 - 🤔 I’m looking for help with my expertise
-- 💬 Ask me about my skills orany other things
-- 📫 How to reach me: zainabbasi7534@gmail.com
+- 💬 Ask me about my skills or any other things
+- 📫 How to reach me:
+  - zainabbasi7534@gmail.com
+  - 
 
 
